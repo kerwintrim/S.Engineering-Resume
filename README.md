@@ -1,1 +1,1 @@
-# S.Engineering-Resume
+Portfolio resume showcasing my skills and services
